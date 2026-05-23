@@ -8,7 +8,6 @@
 
 **Talking about Personal Stuffs:**
 
-- 👨🏽‍💻  I’m currently working on something cool :wink:.
 - 💻 I'm currently studying Systems Engineering.
 - 💬  Ask me about anything, I am happy to help.
 - 📫  How to reach me: gerardisantino4@gmail.com.
